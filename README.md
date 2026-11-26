@@ -6,6 +6,7 @@
   
 [atabook](https://anthrophology.atabook.org/)${\color{red} ʚ🌈ɞ }$ [@madeby](https://github.com/agnosticangel)
 </div>
+
 <div align="center">
  <img height="250"  align="center"  src="https://file.garden/ar3ZTaQyJvnIk4_N/Untitled336_20261126110344.png" /> 
  
