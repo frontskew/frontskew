@@ -1,4 +1,4 @@
-## <img align="left" height="90" src="https://file.garden/ar3ZTaQyJvnIk4_N/Untitled167_20261126180316.png" /> read dni + about me 
+## <img align="left" height="50" src="https://file.garden/ar3ZTaQyJvnIk4_N/Untitled167_20261126180316.png" /> read dni + about me 
 
 
 
