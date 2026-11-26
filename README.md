@@ -1,11 +1,13 @@
 ## <img align="left" height="125" src="https://file.garden/ar3ZTaQyJvnIk4_N/Untitled167_20261126180316.png" /> read dni + about me 
-<div align="center">
- <img height="300"  align="center"  src="https://file.garden/ar3ZTaQyJvnIk4_N/Untitled336_20261126110344.png" />  
+
+
 
  <div align="center">
   
 [atabook](https://anthrophology.atabook.org/)${\color{red} ʚ🌈ɞ }$ [@madeby](https://github.com/agnosticangel)
 </div>
+<div align="center">
+ <img height="300"  align="center"  src="https://file.garden/ar3ZTaQyJvnIk4_N/Untitled336_20261126110344.png" /> <img height="300"  align="center"  src="https://file.garden/ar3ZTaQyJvnIk4_N/Untitled167_20261126180230.png" />
  
 <div align="center">
   
