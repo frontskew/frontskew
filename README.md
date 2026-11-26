@@ -16,5 +16,5 @@
 
 <img height="250" align="center"  src="https://file.garden/ar3ZTaQyJvnIk4_N/Untitled167_20261126180230.png" />
 
-  | ${\color{red} dni}$ <details><summary> </summary> **DARK/PROSHIPPERS**, kyman, racists, paraphiles, basic dni|
+  | ${\color{red} dni}$ <details><summary> </summary> **DARK/PROSHIPPERS**, kyman, racists, paraphiles, basic dni <div> <img height="200" src="https://file.garden/ar3ZTaQyJvnIk4_N/i'm-thinking-dandys-world.gif" />|
 | -------- |
